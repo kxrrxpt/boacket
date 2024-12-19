@@ -6,7 +6,7 @@ im so always free to chat to, so come by and say hello, even if im with friends 
 most of the time im at CoD area, sometimes at the Ghost Band area with friends :)!!
 
 heres the website !!
-https://en.pronouns.page/@_
+https://en.pronouns.page/@kxrrxpt
 
 if it does not work, let me know by adding me on discord,.kxrrxpt is the user. i will get to you as soon as possible <3!!
 hope you have a nice day/night! <33 mwah!/p
